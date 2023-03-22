@@ -1,1 +1,0 @@
-# dz_6_2_1_Zganyayko
